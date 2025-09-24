@@ -61,6 +61,7 @@ OUTPUT
 
 ---
 MANUAL CALCULATIONS
+![WhatsApp Image 2025-09-23 at 21 02 22_1595e6d7](https://github.com/user-attachments/assets/c95ce439-3db0-458e-8335-c65543b6056c)
 
 ---
 
